@@ -1,0 +1,1 @@
+⛔️🐕‍🦺️📖️ The official source repository for UnSaaSS (Undo Software as a Service Substitute) a place to discuss, promote, and creative alternatives to SaaSS, for preservation and functionality purposes.
